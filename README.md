@@ -230,4 +230,4 @@ Thimbleweed Park is available as a full free version, including all features and
 Don’t miss out on the chance to relive the golden age of graphical adventures! **Download Thimbleweed Park free today and embark on a whimsical journey filled with mystery and humor!**
 
 ---
-**Last updated:** 2026-09-23 11:00:10 UTC
+**Last updated:** 2026-09-23 16:20:50 UTC
